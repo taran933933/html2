@@ -1,16 +1,1 @@
-#lecture 1
-# taran933
-# html1
-# html1
 # html2
-# html2
-# html2
-# html2
-# html3
-# html3
-# taran933
-# taran933
-# taran933
-# html2
-# html2
-# html3
